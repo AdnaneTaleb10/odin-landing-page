@@ -6,4 +6,4 @@ Jason W
 Tina Guina
 Tyler Nix
 Nathan Dumlao
-Wade Austin Ellis
+Wade Austin Ellis.
